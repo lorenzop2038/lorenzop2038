@@ -1,5 +1,10 @@
-### Hi there 👋
+### Hi, I´m Lorenzo 👋😌🖥️
 
+You can Find me🌏:
+-[Youtube]:(https://www.youtube.com/channel/UC6MAvQGXjLfWpfeObEr0znA)
+-[Facebook]:(https://www.facebook.com/lorenzop2038)
+-[Instagram]:(https://www.instagram.com/lorenzop0621)
+-[Blog]:(https://www.lorenzop2038)
 <!--
 **lorenzop2038/lorenzop2038** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
